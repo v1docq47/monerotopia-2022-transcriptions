@@ -4,7 +4,7 @@ _**koe - Протокол транзакций Seraphis. Monerotopia 2022**_
 
 _Введение - Koe, участник проекта Monero и ведущий разработчик проекта Seraphis, автор книги Zero to Monero, рассказывает о протоколе транзакций Seraphis на основной сцене мероприятия Monerotopia 2022 #XMR4ALL!_
 
-[https://youtu.be/XbMLK-aarKU](https://youtu.be/XbMLK-aarKU)
+[https://youtu.be/c6Zu_sqO0pQ](https://youtu.be/c6Zu_sqO0pQ)
 
 ---
 

@@ -1,10 +1,10 @@
-# Франсиско “ArticMine” Кабаньяс 
+# Франсиско “ArticMine” Кабаньяс
 
 _**Франсиско “ArticMine” Кабаньяс - Масшабирование Monero. Monerotopia 2022**_
 
 _Введение - Франсиско “ArticMine” Кабаньяс, участник основной команды Monero и эксперт по масштабированию XMR, рассказывает о масштабировании, применяемом в Monero, и потенциале роста XMR с учётом потенциальных ограничениях на основной сцене мероприятия Monerotopia 2022 #XMR4ALL!_
 
-[https://youtu.be/9RJ5HDmuucY](https://youtu.be/9RJ5HDmuucY)
+[https://youtu.be/l_bmczuHnlA](https://youtu.be/l_bmczuHnlA)
 
 ---
 

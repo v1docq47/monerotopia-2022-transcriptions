@@ -4,7 +4,7 @@ _**Рэйчел-Роуз О'Лири - Почему конфиденциальн
 
 _Введение - Рэйчел-Роуз О'Лири, один из разработчиков DarkFi, говорит о том, почему конфиденциальность имеет значение, на основной сцене мероприятия Monerotopia 2022 #XMR4ALL!_
 
-[https://youtu.be/IoggcweayX0](https://youtu.be/IoggcweayX0)
+[https://youtu.be/dQ8gWtihxFE](https://youtu.be/dQ8gWtihxFE)
 
 ---
 
